@@ -3,8 +3,8 @@
 - 🌱 I’m currently learning to know basics
 - 💞️ I’m looking to collaborate on the diffent aspects involved
 - 📫 
-- 😄 Pronouns: ...believe that you can make itand you are half way there.
-- ⚡ Fun fact: ...
+- 😄 Pronouns: ...starman,mohvic,the flex. ⭐🌹🌼
+- ⚡ Fun fact: ... ...believe that you can make it and you are half way there
 
 <!---
 skilltradecoder/skilltradecoder is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
