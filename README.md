@@ -1,3 +1,4 @@
+![Untitled design](https://github.com/user-attachments/assets/dbf97b06-0f0a-403c-ab5e-ee2eea3f30f4)
 - 👋 Hi, I’m @Starman
 - 👀 I’m interested in learning coding
 - 🌱 I’m currently learning to know basics
